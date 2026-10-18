@@ -1,4 +1,7 @@
-kids are smoking the mushroom <div align="center">
+<div align="center">
+
+<img width="516" height="387" alt="Untitled87_20261018120236" src="https://github.com/user-attachments/assets/52b0d73b-5911-44f5-8afb-79b579a2f239" />
+
 
 <img width="835" height="660" alt="a0cccff9-1dc4-4a91-bc9d-dcc0c0bc94c8" src="https://github.com/user-attachments/assets/1d5bf6cf-0585-4d9c-a98f-a230e4b91a62" />
 
